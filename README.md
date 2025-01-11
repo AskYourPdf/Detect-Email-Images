@@ -1,0 +1,1 @@
+# Images for Detect.ai email templates
